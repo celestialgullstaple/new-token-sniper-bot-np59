@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new token sniper bot with AI-powered new token sniper bot | contract-verification + back-running. Featuring contract-verification and back-running, it's the best
 
 
 
